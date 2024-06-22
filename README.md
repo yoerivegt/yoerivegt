@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Crunch
-- 👀 I'm intrested in CyberSecurity
+- 👀 I'm intrested in Cyber Security
 - 📫 You can reach me via discord: `0xCrunch`
 - 🇳🇱 From the Netherlands!
 - 😎 Active in legal crime
