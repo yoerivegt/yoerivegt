@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Crunch
 - 👀 I'm intrested in CyberSecurity
-- 📫 You can reach me via discord: `Crunch#8996`
+- 📫 You can reach me via discord: `0xCrunch`
 - 🇳🇱 From the Netherlands!
 - 😎 Active in legal crime
 
